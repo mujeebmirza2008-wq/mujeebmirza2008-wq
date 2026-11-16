@@ -1,4 +1,4 @@
- 👋 Hey there, I'm Mujeeb!
+ 👋 Hey there, I'm Mujeeb Mirza!
 
 🚀 Welcome to my GitHub profile!
 
